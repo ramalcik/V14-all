@@ -14,6 +14,11 @@ SATILIKTIR BOT 100 STARDA PAYLAŞILACAKTIR ULAŞMAK İÇİN DİSCORD `cartelfx` 
 ![image](https://cdn.discordapp.com/attachments/1035142680453316669/1205556228592373812/image.png?ex=65d8ccbb&is=65c657bb&hm=5b2293fbff21eb8eb1545a0497990c1bcb486163bf30bf312ec6d3dd2c62579a&)
 ![image](https://cdn.discordapp.com/attachments/1035142680453316669/1205558205925560360/image.png?ex=65d8ce92&is=65c65992&hm=08bdf930b9dc389173906b8d952dcd083a1a4980076e62e98ddc66b02eac779c&)
 ![image](https://cdn.discordapp.com/attachments/1035142680453316669/1205558019195277322/image.png?ex=65d8ce65&is=65c65965&hm=a6d3e7f125213fb09f53fffbb2b690a5dd047a5d7c9867387ccb9d83d1f9bb4d&)
+![image](https://cdn.discordapp.com/attachments/1035142680453316669/1205562485327798272/image.png?ex=65d8d28e&is=65c65d8e&hm=1c2653437ee585ad37c4bd2a2835336fb02f72afd6f99fef21262363235d03d2&)
+![image](https://cdn.discordapp.com/attachments/1035142680453316669/1205562818770767922/image.png?ex=65d8d2de&is=65c65dde&hm=d25a34a7adcb15bd6610ea237e138852e27dbc2ab3cd2fc11bba22572cb764da&)
+![image](https://cdn.discordapp.com/attachments/1035142680453316669/1205562936559411200/image.png?ex=65d8d2fa&is=65c65dfa&hm=a3cb5e29baa27ec1f16052361df22f2c4974fac9bd781e04d5658ad8cea97933&)
+![image](https://cdn.discordapp.com/attachments/1035142680453316669/1205564980913774642/image.png?ex=65d8d4e1&is=65c65fe1&hm=2b67ca8ea4642b4428fc0af954ae743893b7018a88be3537b00d51e7c00451fd&)
+![image](https://cdn.discordapp.com/attachments/1035142680453316669/1205566750801006643/image.png?ex=65d8d687&is=65c66187&hm=71c75d0cef6ac14ae70bbc1da748f51c753eb2d6c838f4d72ca3e7e87be99933&)
 
 
 
